@@ -2,7 +2,7 @@
 
 > Hello There,
 > 
-> I'm Vivek Chavhan. Very Passionate and Goal Driven person! AutoCAD is one of the tool I have mastered along with other CAD related softwares like CATIA v5 as well as Creo.
+> I'm Vivek Chavhan. Very Passionate and Goal Driven person! AutoCAD is one of the tool I have mastered along with other CAD related softwares like CATIA v5 and Creo.
 > 
 > Have a look at my work Sample Below:  
 
